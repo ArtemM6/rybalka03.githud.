@@ -1,2 +1,2 @@
-# rybalka03.githud.
-rybalka03.githud.io
+# rybalka03.githud.ru
+rybalka03.githud.ru
